@@ -16,7 +16,7 @@ we have three states :
 so simple!
 
 samanSadeghyan
-Email : samronsadeghyan@gmail.com
+Email : s.sadeghy325@gmail.com
 
 
 
