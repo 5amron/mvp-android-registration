@@ -15,8 +15,6 @@ we have three states :
 
 so simple!
 
-samanSadeghyan
-Email : s.sadeghy325@gmail.com
 
 
 
